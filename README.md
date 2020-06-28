@@ -11,3 +11,5 @@
 ## ANS. A buudha from miles away had a smell of war between the 2 tribes on eitheer side of the river rohini and hurried towards them to stop them and to peacefully solve their dispute.
 ## Q. What story was recounted to make the tribes understand the importance of sharing.
 ## ANS. The story was about a great storm. the trees tha were claseeto each other and whose branches were intertwined will remain standing but the tree that grew alone and seperated from other trees will be blown away
+## Q. What did you learn from the story?
+## ANS. From this story i lernt to always be with each other or share things with each other in the times on trouble or else we will tear apart.
